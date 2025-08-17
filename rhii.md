@@ -3,5 +3,5 @@
 
 : ᯓ artist ! ﹐
 
-     ♡   .     crk user#1;      nikoruu 
-ᛝ server: ◞ pure vanilla !!
+     ♡   .     crk user#1;      kawanarii
+ᛝ server: ◞ dark cacao !!
