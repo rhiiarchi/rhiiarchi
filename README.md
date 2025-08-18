@@ -1,7 +1,7 @@
      ﹒    @rhiiarchi  ﹕☆
 ㅤ ﹟ he · she · ☁️
 
-: ᯓ artist ! ﹐
+: ﹟ artist ! ﹐
 
-     ♡   .     crk user#1;      kawanarii
+     ♡   .     crk user;      kawanarii
 ᛝ server: ◞ dark cacao !!
